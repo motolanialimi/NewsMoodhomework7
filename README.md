@@ -1,0 +1,1 @@
+# NewsMoodhomework7
